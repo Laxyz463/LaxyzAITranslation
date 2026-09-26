@@ -12,4 +12,4 @@ https://workdrive.zohoexternal.com/file/kt0kt83a2aef6a6f0437c9e1e3f3a796b03df
 
 **Band II/2**  
 政治经济学批判第一分册（1859）及同时期（1858-1861）手稿  
-https://workdrive.zoho.com/file/dtjv3fb54939a2b0c4f37ad212b7465e3415b
+https://workdrive.zohoexternal.com/file/dtjv3fb54939a2b0c4f37ad212b7465e3415b
